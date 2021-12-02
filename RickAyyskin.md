@@ -1,7 +1,7 @@
 # RickAyy
 
 ### A visual list of skins used by RickAyy on his stream at [Twitch](https://www.twitch.tv/r1ckayy)
-### If any link doesnt work or is outdated, pleae contact me through discordID SauceSenpaix3#9869
+### If any link doesnt work or is outdated, pleae contact me through DiscordID SauceSenpaix3#9869
 
 ## [- 《CK》 Bacon boi 1.0 skin by cyperdark](https://skins.osuck.net/index.php?newsid=1648)
 ![alt text](https://media.giphy.com/media/ZcCEYin4QQeqepdvtE/giphy.gif)
