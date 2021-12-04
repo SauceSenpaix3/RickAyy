@@ -11,3 +11,7 @@
 
 ## [NinoDurian v1.0 skin by Nochito](https://skins.osuck.net/index.php?newsid=2166)
 ![alt text](https://media.giphy.com/media/IFVx8Hh92szCnAlxz8/giphy.gif)
+
+
+## [KoaLigmaQ [1.1] skin by Shikima](https://skins.osuck.net/index.php?newsid=1533)
+![alt text](https://media.giphy.com/media/qJP3pEyuqj3YNuAVBo/giphy.gif)
