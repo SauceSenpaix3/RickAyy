@@ -15,3 +15,6 @@
 
 ## [KoaLigmaQ [1.1] skin by Shikima](https://skins.osuck.net/index.php?newsid=1533)
 ![alt text](https://media.giphy.com/media/qJP3pEyuqj3YNuAVBo/giphy.gif)
+
+## [#Angelsim #2 skin by firebat92](https://mega.nz/file/M7I1mS4S#Non8eB22JcHw5EOISFJM8fsvlVlKfTLF-uxP2j3L0ec)
+![alt text](https://media.giphy.com/media/MTRhnEAUV8juEzjYys/giphy.gif)
