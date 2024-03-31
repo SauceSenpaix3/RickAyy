@@ -18,3 +18,6 @@
 
 ## [#Angelsim #2 skin by firebat92](https://mega.nz/file/M7I1mS4S#Non8eB22JcHw5EOISFJM8fsvlVlKfTLF-uxP2j3L0ec)
 ![alt text](https://media.giphy.com/media/MTRhnEAUV8juEzjYys/giphy.gif)
+
+## [Arknights (Kimchisshi Skin)](https://drive.google.com/file/d/1Ykkbxt41QROTCsnz-uShZ-KcX4dOf8jU/view?usp=sharing)
+![alt text](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHVsbzd4a25qdWdlZGN0eGdqbGdwZmZ6eWFscmNzeHA5Mjg4bjk4OSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/E9MeQjfiPeVSh4QLUA/giphy.gif)
